@@ -1,0 +1,14 @@
+![[Network structure, standalone, post-creation connection.mp3]]
+SPINE is a **self-contained system**, both physically and operationally. It resides exclusively in **Sublevel 2** of the lab and does not integrate directly with clone fabrication, life support, or hardware infrastructure. Its sole purpose is to manage cognition, memory synchronization, and internal communication among connected clones. Clones are only introduced to the network **after** they are fully created, stabilized, and cleared for mental integration.
+
+The physical system housing SPINE is immobile and centralized—it does not span multiple rooms or systems. Every active stem, or clone-thread, connects directly into this central hub once online. That’s what makes it secure, predictable, and reliable: no cloud-based distribution, no external dependencies, and no partial integrations. It either connects fully, or it doesn’t.
+
+Each clone links through their own unique **stem**, which acts like a branch node extending from the core SPINE system. These stems serve as two-way channels: the clone contributes their experiences and decisions to the network and simultaneously receives updates from the rest of the connected minds. Once synced, the stem remains active for as long as the clone is alive and functional.
+
+SPINE does not assist in clone growth or creation. That process occurs entirely outside the system, and only when a clone reaches readiness—mentally and physically—can they be introduced to SPINE. This separation is intentional, both for safety and ethical reasons. It prevents unstable or incomplete minds from entering the network, and ensures that all connected clones are fully formed, emotionally capable, and aware.
+
+This **post-creation connection model** gives each clone a brief window of separation before becoming part of the collective. During this time, they are usually disoriented or under observation, and the sync process can take anywhere from a few minutes to several hours depending on their mental readiness. Once connected, integration is seamless, but not irreversible—disconnection is possible, though rare, and always monitored closely.
+
+Because the system is standalone, any threats to SPINE are taken extremely seriously. It is the heart of the collective—not their bodies, not their genes, but their shared mind. If SPINE were compromised, all active memory flow would cease, and the mental link between clones would fracture. Though each clone could still function independently, the shared knowledge and awareness would vanish instantly.
+
+The network’s structure reinforces the themes of connection by choice, preservation without control, and memory without invasion. It is the spine—quiet, strong, and holding everything together, even when no one sees it.

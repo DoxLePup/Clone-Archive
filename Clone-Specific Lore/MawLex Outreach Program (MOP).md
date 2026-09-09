@@ -1,0 +1,8 @@
+The MawLex Outreach Program is a lab sanctioned field initiative designed to expand clone experiential data beyond controlled environments. Rather than keeping SPINE connected clones isolated within laboratory settings, MOP authorizes supervised deployment into civilian, industrial, and social spaces.
+
+The primary objective of MOP is experiential acquisition. Clones participating in the program engage directly with the outside world to gather environmental context, social dynamics, emotional variance, and real world problem solving data that cannot be replicated in sterile conditions. These experiences are selectively synchronized through SPINE, enriching the collective knowledge base without compromising individual autonomy.
+
+Participation in MOP is voluntary for both clones and civilians. External participants may apply through approved channels to interact with clones for observation, collaboration, education, or structured exchange. This is not a therapeutic program, nor a public relations exercise, but a mutual exposure framework intended to normalize clone presence while advancing research fidelity.
+
+Operational oversight remains with the lab under quantum lock constraints. All deployments are logged, monitored, and subject to recall protocols. Clones retain the right to disengage at any time.
+MOP represents a shift in lab philosophy: clones are no longer treated solely as internal assets or observers, but as active participants in the world they are meant to understand.

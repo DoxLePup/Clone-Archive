@@ -1,0 +1,15 @@
+SPINE may be a shared network of minds, but it is not a surveillance system. Each clone is granted full control over what they share and when. This is made possible through a built-in feature of their connection to the network: a private folder, housed within their individual SPINE stem.
+
+When a clone experiences something, they can consciously choose whether that moment is immediately uploaded to the collective “public” folder, or stored temporarily in their private space. This decision happens on-the-fly—sometimes instinctively, other times with clear intent. Private folders allow for emotional breathing room, personal reflection, or simply a pause to decide whether something is worth sharing.
+
+The public folder exists within the central SPINE housing system in Sublevel 2, where all shared data is stored and accessed. This is the memory pool that all clones can draw from—less like a public server and more like a collective journal. The private folders, meanwhile, remain tied to each individual clone's stem. They aren’t locked from view permanently, but they are inaccessible unless the clone chooses to release that memory.
+
+This dynamic allows for a balance between transparency and personal boundaries. A clone might keep something private for just a moment—until they’ve had time to process it—or they may choose to never release it at all. Others might hold back personal details about intimate moments, emotional breakdowns, or fears that they simply don’t want to burden the collective with.
+
+The use of private folders varies from clone to clone. Some clones rarely keep anything to themselves, favoring openness. Others operate with high levels of discretion, choosing to only share filtered or curated content to the network. Neither is wrong—SPINE was built to support both, without conflict or consequence.
+
+Importantly, other clones can’t “guess” what’s in a private folder. They may sense that something is missing or notice inconsistencies, but the content is sealed unless explicitly shared. This makes trust and consent central to inter-clone relationships. When one clone opens up their private folder to another, it’s a deeply personal act—almost sacred in its vulnerability.
+
+In high-stress or dangerous situations, some clones may instinctively route memories into the private folder to avoid overwhelming the network. Afterward, they can review, process, and decide how much of that event needs to be shared for the good of the group. This self-filtering function is essential to keeping SPINE from becoming emotionally congested or unstable.
+
+The private folder system is what makes SPINE humane. It respects the inner world of every clone, giving them space to be more than a sum of shared data. It’s a place for secrets, quiet truths, and raw moments—not to be hidden out of shame, but held until ready.

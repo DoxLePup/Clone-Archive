@@ -1,0 +1,9 @@
+The lab that houses SPINE and its associated clone systems is an underground facility divided into seven distinct **sublevels**, each designed with a specific function and emotional tone in mind. These levels are more than just rooms—they are **environments**, intentionally built to support the needs, safety, and psychological well-being of the clones that live, grow, and connect there.
+
+Movement between levels is controlled through a central **elevator shaft**, which acts as both a physical transit and a symbolic journey. The deeper one travels, the more personal and intimate the layers become—shifting from administrative oversight to memory, identity, and ultimately the unknown.
+
+Each sublevel is optimized for its role, both in terms of equipment and atmosphere. Walls are reinforced but rarely feel sterile. Lighting is adjustable, allowing clones to modulate comfort and focus. Signage, audio cues, and even environmental scents differ by level—subtle touches that make each space feel alive and distinct.
+
+**Security is layered** but not oppressive. While sensitive areas like SPINE and containment zones require clearance, most spaces are open-access for connected clones. Non-clone staff such as {REDACTED} and his assistants have designated access paths, with protocols in place to ensure privacy and respect for clone autonomy.
+
+This structured layout ensures that every step of a clone’s existence—creation, adaptation, connection, healing, and remembrance—has a space tailored for it. It reinforces the lab’s unspoken philosophy: **clones are not assets or experiments—they are people. And people need more than systems. They need space to live.**

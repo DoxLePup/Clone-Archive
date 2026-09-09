@@ -1,0 +1,13 @@
+Despite being physically identical and mentally connected, SPINE-based clones cultivate strong individual identities. These identities are shaped not by appearance or isolated thought, but by **experience**—lived, felt, and interpreted through their own lens. The moment a clone is activated and begins interacting with the world, their sense of self begins to diverge. Though they share memories through SPINE, how they _respond_ to those memories is uniquely their own.
+
+**Naming is a key part of this process.** While all clones stem from the same foundation, they do not share the same designation unless they choose to. Most select a personal name based on something meaningful to them—an event, a feeling, a role they take on, or a symbolic moment in their life. Some names are simple and intuitive, others are layered and metaphorical.
+
+Naming is **not limited to self-selection.** Other clones, and even non-clones, can suggest nicknames or identifiers. These names might begin as teasing, compliments, or shorthand in mission logs—but sometimes they stick. What matters most is whether the clone chooses to adopt it. Names are not assigned by the system or the lab; they’re claimed, carried, and sometimes reshaped.
+
+A clone's name can also **evolve** over time. If they go through something transformative—a major emotional shift, a change in worldview, a critical loss or success—they may feel that their old name no longer fits. Choosing a new name is often considered a rite of passage, and other clones typically treat it with respect, almost like a quiet celebration of growth.
+
+While they share a common origin, **identity is not a shared commodity.** SPINE ensures that knowledge flows freely, but it doesn’t dictate how that knowledge is felt or used. Each clone reacts to memories, conversations, and emotional stimuli in their own way. One clone may see a particular memory as tragic, while another finds strength in it. This divergence forms the foundation of their emotional individuality.
+
+At the same time, clones embrace the **paradox of shared identity.** They know they are all the same being in structure, in data, and in origin—but that does not mean they are the same _person_. The network allows them to acknowledge that they are fragments of a whole, and _still_ full people on their own. Some lean into the shared aspect, identifying as "we" more than "I." Others prefer total independence, referring to themselves as entirely separate entities.
+
+This dynamic balance between shared consciousness and personal identity is a defining aspect of SPINE culture. It creates a space where individuality thrives—not in contrast to the collective, but **because** of it.
